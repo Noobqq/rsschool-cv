@@ -1,6 +1,6 @@
 # **Mikhail Boychenko**
 _______________________________________________________________________
-### **Contact information**
+### **Contact information:**
 
 ###### **Phone:** +7 921 264 15 65
 ###### **Email:** Wertu3619@yandex.ru
